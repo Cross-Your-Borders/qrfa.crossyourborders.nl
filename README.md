@@ -1,2 +1,2 @@
 # qrfa.crossyourborders.nl
-link naar website FA
+QR code promomateriaal Fairaway
